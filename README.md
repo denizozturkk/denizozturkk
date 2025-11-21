@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Deniz Öztürk!
 - 👀 I’m interested in Math,Coding and Sports.
-- 🌱 I’m currently CS Freshman at Bilkent University
+- 🌱 I’m currently CS Senior at Bilkent University
 - 📫 How to reach me denizozturk1023@gmail.com
 - 👀 Also, I'm new to this site and looking forward to your advice and help!
 
